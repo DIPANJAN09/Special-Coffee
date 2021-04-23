@@ -1,0 +1,1 @@
+The thing that I can make prefectly is coffee. It is not normal coffee, it is layered coffee. There will be 2 layers. The bottom will be normal coffee and the top layer will be foam. The first time I tried the foam was almost not visible because it was very thin. But the next time I was able to make properly. It is a very strong coffee.
